@@ -35,5 +35,6 @@ Me mande um e-mail com:
 - Disponibilidade atual
 
 📧 **[igorcsmm@gmail.com]**
+DISCORD **[igorcsmm22]**
 
 Vamos marcar uma call e ver se faz sentido dos dois lados. 🚀
